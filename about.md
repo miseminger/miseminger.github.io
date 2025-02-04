@@ -1,3 +1,1 @@
-Pages about pattern-finding, nature facts, and midnight cookery. 
-
-Practicing website-making for the first time; we'll see what happens.
+Vancouver, Canada.
